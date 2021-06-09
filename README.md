@@ -3,8 +3,7 @@
 Toastmasters: Course Completion (20 speeches)
 
 
-#### 2019 North Carolina Final - Toastmasters Humorous Speech Contest. 
-#### 3rd Place
+#### 2019 North Carolina Final - Toastmasters Humorous Speech Contest.  3rd Place
 
 https://www.youtube.com/watch?v=ny9I-OTcgMo
 
